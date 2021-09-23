@@ -1,5 +1,5 @@
 ### Hi there 👋 am Srijena Nithish 
-### Am naughty enough to play with codes 😉.
+### Am naughty enough to play with codes 😉
 
 ![](code1.gif)
 
